@@ -1,5 +1,5 @@
 # 💫 About Me:
-im currently working as an Intern at @studentforge.in
+im currently working as an Intern at @EXCELERATE , @studentforge.in
 
 
 ## 🌐 Socials:
